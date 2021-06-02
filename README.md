@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @A-Lokesh16
+- 👀 I’m interested in Coding , programming
+- 🌱 I’m currently learning in sairam engineering college first year
